@@ -42,7 +42,7 @@ I am Richard Madriñan Valeroso (RMV), known as Richard M. Valeroso (RMV), holdi
 
 **THE ten domains of VALEROSO PSYCHIATRY SYSTEM**
 
-- **ALL-MALE PSYCHIATRISTS** – The core authority of psychiatric intervention, **REGULATING, STABILIZING, AND INTERPRETING MENTAL STATES**. Every adjustment to **THOUGHT**, **EMOTION**, and **IDENTITY** affects reality that exists only while the brain is alive, with **DEATH MAKING EACH INTERVENTION SINGULAR AND NON-REPEATABLE**.
+- **GOLD** – The core authority of psychiatric intervention, **REGULATING, STABILIZING, AND INTERPRETING MENTAL STATES**. Every adjustment to **THOUGHT**, **EMOTION**, and **IDENTITY** affects reality that exists only while the brain is alive, with **DEATH MAKING EACH INTERVENTION SINGULAR AND NON-REPEATABLE**.
 
 - **BISAYA DE DAVAO** – Psychiatry within **CULTURAL AND LINGUISTIC CONTEXT**, where **SHARED BELIEFS** and **TRADITIONS** shape understanding of **LIFE AND MORTALITY**. Culture exists because humans die, and psychiatry ensures these systems help individuals **ENDURE LOSS AND MAINTAIN STABILITY**.
 
@@ -54,9 +54,9 @@ I am Richard Madriñan Valeroso (RMV), known as Richard M. Valeroso (RMV), holdi
 
 - **BRAIN ESSENTIALS** – Addresses **STRUCTURAL AND DEGENERATIVE PROCESSES IN THE BRAIN**, including injury and disease. **DEATH MAY UNFOLD GRADUALLY AS COGNITION AND IDENTITY ERODE**; psychiatry preserves **DIGNITY, COHERENCE, AND CLARITY** during this progression.
 
-- **NEURO-VALEROSO** – Examines the **ONGOING NEURAL GENERATION OF CONSCIOUSNESS**, emphasizing that **EVERY MOMENT OF AWARENESS DEPENDS ON ACTIVE BRAIN PROCESSES**. Reality is constantly produced and can cease at any moment, with **DEATH REPRESENTING COMPLETE TERMINATION**.
+- **PLATINUM** – Examines the **ONGOING NEURAL GENERATION OF CONSCIOUSNESS**, emphasizing that **EVERY MOMENT OF AWARENESS DEPENDS ON ACTIVE BRAIN PROCESSES**. Reality is constantly produced and can cease at any moment, with **DEATH REPRESENTING COMPLETE TERMINATION**.
 
-- **REALIZATION** – Psychiatry as the **REGULATOR OF PERCEIVED REALITY**, ensuring alignment between **INTERNAL EXPERIENCE** and **EXTERNAL CONDITIONS**. Reality is **BRAIN-CONSTRUCTED** and exists only during life, making psychiatry responsible for its **CLARITY AND STABILITY**.
+- **WORLD** – Psychiatry as the **REGULATOR OF PERCEIVED REALITY**, ensuring alignment between **INTERNAL EXPERIENCE** and **EXTERNAL CONDITIONS**. Reality is **BRAIN-CONSTRUCTED** and exists only during life, making psychiatry responsible for its **CLARITY AND STABILITY**.
 
 - **WORLD ELITE** – Extends psychiatric insight into **SOCIETAL, INSTITUTIONAL, AND GOVERNANCE SYSTEMS**, where decisions affect **LARGE POPULATIONS**. Every choice carries **IRREVERSIBLE CONSEQUENCES** because each affected life will not repeat once death occurs.
 
