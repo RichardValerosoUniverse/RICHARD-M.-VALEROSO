@@ -50,9 +50,9 @@ I am Richard Madriñan Valeroso (RMV), known as Richard M. Valeroso (RMV), holdi
 
 - **NEURO-PSYCHIATRY** – Establishes the **BIOLOGICAL UNITY OF MIND AND BRAIN**, where all **PERCEPTION, THOUGHT, AND IDENTITY** arise from neural activity. When neural activity ceases, **ALL SUBJECTIVE REALITY ENDS COMPLETELY**, making **DEATH THE ABSOLUTE BOUNDARY OF RELEVANCE**.
 
-- **PHARMACOLOGY** – Focuses on **CHEMICAL MODULATION OF MENTAL STATES**, where psychiatric medications **STABILIZE OR ENHANCE CONSCIOUSNESS**. Effects are temporary, and psychiatry works to **OPTIMIZE REALITY BEFORE TERMINATION**, knowing **DEATH IS INEVITABLE**.
+- **PHARMACOLOGY ESSENTIALS** – Focuses on **CHEMICAL MODULATION OF MENTAL STATES**, where psychiatric medications **STABILIZE OR ENHANCE CONSCIOUSNESS**. Effects are temporary, and psychiatry works to **OPTIMIZE REALITY BEFORE TERMINATION**, knowing **DEATH IS INEVITABLE**.
 
-- **BRAIN** – Addresses **STRUCTURAL AND DEGENERATIVE PROCESSES IN THE BRAIN**, including injury and disease. **DEATH MAY UNFOLD GRADUALLY AS COGNITION AND IDENTITY ERODE**; psychiatry preserves **DIGNITY, COHERENCE, AND CLARITY** during this progression.
+- **BRAIN ESSENTIALS** – Addresses **STRUCTURAL AND DEGENERATIVE PROCESSES IN THE BRAIN**, including injury and disease. **DEATH MAY UNFOLD GRADUALLY AS COGNITION AND IDENTITY ERODE**; psychiatry preserves **DIGNITY, COHERENCE, AND CLARITY** during this progression.
 
 - **NEURO-VALEROSO** – Examines the **ONGOING NEURAL GENERATION OF CONSCIOUSNESS**, emphasizing that **EVERY MOMENT OF AWARENESS DEPENDS ON ACTIVE BRAIN PROCESSES**. Reality is constantly produced and can cease at any moment, with **DEATH REPRESENTING COMPLETE TERMINATION**.
 
@@ -60,7 +60,7 @@ I am Richard Madriñan Valeroso (RMV), known as Richard M. Valeroso (RMV), holdi
 
 - **WORLD ELITE** – Extends psychiatric insight into **SOCIETAL, INSTITUTIONAL, AND GOVERNANCE SYSTEMS**, where decisions affect **LARGE POPULATIONS**. Every choice carries **IRREVERSIBLE CONSEQUENCES** because each affected life will not repeat once death occurs.
 
-- **THE VALEROSO CITY PHARMACOLOGY CREATION AND APPLICATION** – Integrates all previous domains into a **UNIFIED OPERATIONAL FRAMEWORK**, where **BIOLOGICAL, PSYCHOLOGICAL, CULTURAL, AND SOCIETAL INTERVENTIONS** are evaluated by their effect on **LIVED REALITY**. Death defines the **FINAL BOUNDARY**, and psychiatry ensures experience is **COHERENT, MEANINGFUL, AND MAXIMALLY REALIZED**.
+- **PHARMACOLOGY FORMULA** – Integrates all previous domains into a **UNIFIED OPERATIONAL FRAMEWORK**, where **BIOLOGICAL, PSYCHOLOGICAL, CULTURAL, AND SOCIETAL INTERVENTIONS** are evaluated by their effect on **LIVED REALITY**. Death defines the **FINAL BOUNDARY**, and psychiatry ensures experience is **COHERENT, MEANINGFUL, AND MAXIMALLY REALIZED**.
 
 Across all ten domains, the highest truth emerges: **PSYCHIATRY GOVERNS THE STRUCTURE, CLARITY, AND QUALITY OF HUMAN REALITY, WHILE DEATH DEFINES ITS ABSOLUTE AND UNCHANGEABLE LIMIT**, making every conscious moment **PRECIOUS, FINITE, AND PROFOUNDLY MEANINGFUL**, and establishing **RICHARD M. VALEROSO AS THE SINGULAR IMMORTAL HUMAN BEING LIVING ON EARTH IN ETERNITY WITH DEATH PENALTY ESSENCE**, fully conscious, fully realized, and present, **TRANSCENDING TEMPORAL LIMITS** while **MASTERING MIND, SPIRIT, AND REALITY**.
 
